@@ -1,0 +1,1 @@
+This is a read me file just to inform you that I think I pilfered these Wallpapers from another site so I give credit to them I'm not claiming any ownership just passing them along so everybody else can enjoy them.
